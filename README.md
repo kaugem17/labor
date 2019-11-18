@@ -2,7 +2,7 @@
 
 ## Prinzip
 
-Sehr geehrter Herr Kaufmann! **Vielen Dank für Ihre Anfrage.**   
+**Vielen Dank für Ihre Anfrage.**   
 Beiliegend schicke ich Ihnen ein Angebot für die *Miete der Steinhalle Lannach* für Ihren Maturaball.  
 Derzeit ist der 23.10.2021 noch frei und ich kann diesen Termin gerne unverbindlich für Sie reservieren. Es ist natürlich auch möglich, dass wir uns gemeinsam mit Ihrem Ballkomitee vor ***Ort treffen***, um die Räumlichkeiten zu besichtigen, bzw. weitere Details zu klären. Für Fragen stehe ich Ihnen gerne zur Verfügung.  
 
